@@ -1,10 +1,10 @@
 ## Hi there 👋
 
-🧙 **Unblocked Games 76: A Guide to Popular Games** 🍿 🍿
+🧙🧙 **Unblocked Games 76: A Guide to Popular Games** 🍿🍿
 
-<h2><a href="https://1LESSON.GURU">CLICK TO PLAY GAME 2</a></h2>
+<h2><a href="https://rebrand.ly/unblocked-games-76">✨✨ CLICK TO PLAY GAME ✨✨</a></h2>
 </BR>
-<h2><a href="https://lesson1.site/"><img src="https://clearcache.store/games.png"/></a></h2>
+<h2><a href="https://rebrand.ly/unblocked-games-76"><img src="https://clearcache.store/games.png"/></a></h2>
 Unblocked Games 76 is a popular online gaming platform known for providing access to a variety of games that are typically restricted in school or work environments. These games are accessible directly through a browser without the need for downloads, and the platform provides an excellent source of entertainment for students, workers, and anyone looking for a quick gaming break. The appeal lies in the fact that the games are simple to play, run smoothly, and require minimal system resources. Here's a list of the top 20 most popular games on Unblocked Games 76.
 ---
 ### **1. Happy Wheels**
